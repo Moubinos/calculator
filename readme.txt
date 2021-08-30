@@ -1,0 +1,1 @@
+idk what u wanna know, its just a simple calculator :) .
